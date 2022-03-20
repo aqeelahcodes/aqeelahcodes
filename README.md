@@ -1,6 +1,6 @@
 ### Hi there, I'm Aqeelah :wave:
 
-## I just :heart: to build things with with CODE!
+## I just :heart: to build things with CODE!
 
 - :bug: I'm currently working on building my portfolio!
 - :globe_with_meridians: Im currently learning everything! :satisfied:
