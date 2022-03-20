@@ -1,4 +1,4 @@
-### Hi there, I'm Aqeelah :wave:
+### Hi there, I'm Aqeelah you can call me AJ :wave:
 
 ## I just :heart: to build things with with CODE!
 
